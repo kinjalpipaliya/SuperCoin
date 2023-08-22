@@ -1,1 +1,1 @@
-
+SuperCoin
